@@ -33,7 +33,6 @@ Here are some ideas to get you started:
 - A passionate Self-taught Back-End developer
 - Planing a new ride at spare time
 - Currently learning Web Development in SoyHenry 
-- Personal website [link](https://www.0xabdulkhalid.ml)
 - I’m currently open for an Intern or a new job opportunity, this is [me](https://www.linkedin.com/in/fg-facugomez/)
 
 <br><br>
